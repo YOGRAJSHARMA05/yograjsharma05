@@ -1,9 +1,5 @@
 
 
-
-
-
-
 HEY EVERYONE!!
 
 
